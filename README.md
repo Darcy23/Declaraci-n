@@ -1,1 +1,1 @@
-# Declaraci-n
+# Declaracion
